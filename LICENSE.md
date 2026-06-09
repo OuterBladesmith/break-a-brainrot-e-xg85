@@ -1,4 +1,4 @@
-
+break a brainrot egg elite Script is the best break a brainrot egg Script, featuring infinite resources and undetectable. Safe and powerful for all
 
 
 
